@@ -1,1 +1,0 @@
-Ahmed Abbas portfolio file.
